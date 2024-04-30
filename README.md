@@ -12,8 +12,18 @@ ________________________________________________________________________________
 ![image](https://github.com/bosesupriyo/Quiz-App-Design/assets/124809398/6923adca-ee10-4b48-aa09-28665fae37f5)
 
 
+![image](https://github.com/bosesupriyo/Quiz-App-Design/assets/124809398/31a22c37-33a0-4f1f-9f7e-7e4a3d9a4179)
+
 
 ![image](https://github.com/bosesupriyo/Quiz-App-Design/assets/124809398/f1c442fd-b715-4f2b-959f-e903145ca391)
 
 
-![image](https://github.com/bosesupriyo/Quiz-App-Design/assets/124809398/9aba1da3-3791-4b80-b027-99dff1f149b0)
+![image](https://github.com/bosesupriyo/Quiz-App-Design/assets/124809398/e04ce561-9929-4754-9839-d999e184603a)
+
+
+![image](https://github.com/bosesupriyo/Quiz-App-Design/assets/124809398/92fad4bf-8fe5-4f95-a8c9-26f52b38ee50)
+
+
+![image](https://github.com/bosesupriyo/Quiz-App-Design/assets/124809398/47f694fa-81e8-42b7-aed0-9402081e76ee)
+
+
